@@ -2,4 +2,4 @@
 - 👀 Estou interessada em entrar em uma boa faculdade
 - 🌱 Cursando o ensino médio
 - 💞️ Gosto de escutar música 
-- 📫 Como encontar @sabinasnunes 
+- 📫 Como encontar @sabinasnunes- IG
